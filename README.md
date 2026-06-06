@@ -13,7 +13,7 @@
 
 . We use Mirror/Any pronouns!!
 
-. <a href(https://pronouns.cc/@Gambler)">Pronouns
+. <a href="https://pronouns.cc/@Gambler">Pronouns
 
 . We're a medically diagnosed OSDD-1B sys. We view each other as 1, but that does not mean we don't have different personalities and likings.
 
