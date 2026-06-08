@@ -21,7 +21,7 @@
 
 . We don't.. know much infos about DIDs spec, because we're highkey too busy with stuff and whenever we're free we're just doing the things we personally enjoy. But, we're currently still researching about it (like infos n such abt the disorder) even though we're diagnosed w/ OSDD-1b sys. (we're highkey ashamed about this)
 
-. Bodily 17, and happily taken by our sweet bf :-) *his github is @perilkitty btw*
+. Bodily 17, and happily taken by our sweet bf :-) *his github is <a href="https://github.com/Killpyre">@killpyre* *btw!!!*
 
 . We spent most of our time studying or just watching YT/TT whenver we're on PT, so we're literally always off-tab, even with friends sometimes. That's why it's best to whisper if you want to interact with us..
 
