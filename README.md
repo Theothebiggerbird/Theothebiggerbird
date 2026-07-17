@@ -44,45 +44,8 @@
 
 . We're never serious and we joke 24/7. But, we can be serious when necessary.
 
-
-. We can't really tell the differences between sarcasms and jokes, but we'll mostly view sarcasms as jokes.
-
 . We can't tell the differences with sarcasms and jokes, but we'll view sarcasms as jokes mostly :-)
 
-. Somehow mentally sane
-
-. Currently in psychology therapy. 
-
-. We're pretty busy with life, even if we're online 24/7. We got school-stuff & work. So uhh if we're friends, beware of super duper late responses from us..
-
-. We block **only** if necessary! *(as in if you make us uncomfy, trigger us and such.)*
-
-. We don't ncessarily roleplay unless it's with friends and actually asked beforehand..
-
-. We don't understand emotion*s* that well.. so hypertically you genuinely need to say it directly to our face on how you feel at times. (If not we can figure out if you're feeling down or not.. sometimes)
-</details>
-<details>
-<summary><b>INTs & DNIs</b></summary> 
-
-INTs: Highkey anybdy everybdy (unless ur under the DNIs category)
-
-
-DNIs: People below 14, oversensitive people(we're just not good w/ them so pls dni as we can hurt ur feelings by accident), basic DNI criteria, Endos, Old friends, HH/HB, CountryHuman, Skin copiers (Please don't copy our skins!! if you do we'll mostly confront you and block you afterwards.. unless you did apologize then we won't necessarily block u.) Flirting (uhmm only w/ close friends & partner!), Gore likers (general basic gore is okay, just not those people who fantasizes about it yk...)
-
-</details>
-  
-<details>
-<summary><b>SYS info</b></summary> 
-
-. We currently have around 24 alters. (yes we keep tracked)
-
-. Our amnesia gap between one another is extremely little.
-
-. Our memory is pretty.. bright in a way, since we have a collective memory.
-
-. Please actually IWC when mentioned on our ponies, as in no harsh jokes nor any sarcasm please!! Since mostly it'll be our little(s) fronting together. So beware of little to no responses, alongside bad grammar.
-
-. Sometimes 2 or 3 people will front and co-front together, so we might not make much sense when we speak with you. Please bear with us if that does happen! It's not that we're all typing at once, it's moreover because everyone is thinking and talking at the same time in our head, which messes up what we actually want to say.
 
 . Our system is fictive-heavy.
 
@@ -90,36 +53,16 @@ DNIs: People below 14, oversensitive people(we're just not good w/ them so pls d
 
 . We all mostly act, talk, and type in similar ways. (minus little*s*). So, it can be difficult to figure out who's actually fronting. (unless you ask)
 
-. Our goal is final fusion, which we're currently working on with Psychotherapy.
-
 . We were diagnosed not long ago, it was when we were around 14 bodily. (It took around 7-8years of psychology and therapy to be diagnosed fully).
 
 . We currently don't know most of our triggers, but if we get triggered badly then rapid switching may occur, alongside insane mood-swings afterwards.
 
 . We remember most of our trauma, but it doesn't really trigger us much so when topics that's similar to our trauma are mentioned, we'll sorta get uncomfortable but we tend to ignore the topic.
 </details>
-<details>
-<summary><b>Would appreciate</b></summary> 
-
-. We would appreciate if you can be patient with us when we forget about things, and maybe try to re-cap our memory!
-
-. Use tone-tags on serious topics.
-
-. Not rush us when we're trying to remember things we forgot.
-
-. Give us space when we ask for some.
-
-. Directly tell us what we've done to make you uncomfortable/annoyed.
-
-. Not make fun of us when we do act childish, we tend to be more childish and care-free with people we trust more.
-
-. Not compare us with 1 another <3
-
-. Don't swear so much around us, for the sake of our littl*s*
-</details>
 
 </p>
-<p align="center"> $${\color{#ff757a} c*h \space freely \space unless \space stated \space otherwise }$$
+<p align="center"> <a href="https://rentry.co/CASlNO"> Rentry
+<p align="center"> $${\color{#ff757a} This \space git \space is \space ONLY \space used \space on \space MCYTbers/UU \space characetrs. }$$
 <p align="center"> $${\color{#7c616b} Sign \space ata \space pls! \space ty }$$
 
 <p align="center"> <a href="https://rentry.co/FedoraFate">Matching Rentry w/ bf! (Not mobile friendly)
