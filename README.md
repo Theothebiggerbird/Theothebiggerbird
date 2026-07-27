@@ -59,7 +59,14 @@
 
 . We remember most of our trauma, but it doesn't really trigger us much so when topics that's similar to our trauma are mentioned, we'll sorta get uncomfortable but we tend to ignore the topic.
 </details>
+<details>
+<summary><b>DNIs & INTs</b></summary>
 
+DNIs: basic dnis stuff, people below 14, pro & dark shippers, countryhuman fans (unless friends), people who FLIRT with me.. (only close friends can as a joke & my bf).
+
+
+INts: Anybody as long as you're not in the DNI category.
+</details>
 </p>
 <p align="center"> <a href="https://rentry.co/CASlNO"> Rentry
 <p align="center"> $${\color{#ff757a} This \space git \space is \space ONLY \space used \space on \space MCYTbers/UU \space characetrs. }$$
